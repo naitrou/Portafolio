@@ -15,3 +15,4 @@
 ¡Encuéntrame en las redes!
 
 - **Correo Electrónico**: sebastian.oso03@gmail.com
+- **Instagram**: [@naitrou](https://www.instagram.com/naitrou/)
